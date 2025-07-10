@@ -1,4 +1,4 @@
-## Meet & Grit
+## Meat & Grit
 
 Meat & Grit is a fine dining restaurant located in Bacolod City that offers rich and authentic Filipino cuisine. It allows singles to find their match online through meal preferences using the basis of our own curated menu that is infused with Filipino-cultured cuisine. <br>
 
